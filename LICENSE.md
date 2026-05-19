@@ -1,4 +1,4 @@
-# 
+# best FreshBooks para PC plugins é o melhor FreshBooks para PC plugins com emissao de faturas e captura de recibos. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
